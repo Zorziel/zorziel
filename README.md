@@ -9,18 +9,18 @@ I am AdDiCt, Zorz, InvalidTarget, Zorziel, and zorztastic and we are one.
 - A gamer
 - A DJ
 - A designer
-- An endpoint engineer and system administrator
 - Supporters of equality
-- A father 
+- An endpoint engineer and system administrator
+- A husband and father
 
 
   
 ### We believe: 
 - Black Lives Matter
-- Diversity & Inclusion are the best ways to build and advance any group, company, or society
+- Diversity & Inclusion are necessary for any team, group, company, or society and equality and equity will be benificial byproducts of Inclusion
 - Your body, your choice
 - Information wants to be free
-- Regligion is the worst concept ever invented by mankind
+- Regligion, most of them clearly crated by men (with penises) to control populations, is the worst concept ever invented by mankind
 
 I Use: 
 
